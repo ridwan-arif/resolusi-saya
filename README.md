@@ -6,3 +6,4 @@ Resolusi saya 2025
 -Bisa memiliki skill React js yang memumpuni
 -Memiliki usaha
 -Bisa menjadi Programmer di usia muda
+-Bisa ingin menjadi seorang kutu buku
